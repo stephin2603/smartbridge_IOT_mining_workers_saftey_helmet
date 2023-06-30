@@ -1,1 +1,1 @@
-# smartbridge_IOT_mining_workers_saftey_helmet
+https://drive.google.com/file/d/19qWpJrcjYpe3BLilX4PumJfvGWmH-nZi/view?usp=sharing
